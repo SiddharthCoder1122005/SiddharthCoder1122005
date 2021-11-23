@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SiddharthCoder1122005
 - 👀 I’m interested in Learning New Things.
 - 🌱 I’m currently in Class 12th PCM
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I doesn't want to collaborate but if you want you can mail me. 
 - 📫 How to reach me Mail: sidcoder1122005@gmail.com
 
 <!---
